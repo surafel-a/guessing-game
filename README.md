@@ -17,7 +17,7 @@ For more information, questions, or support, feel free to reach out to us:
 - Telegram: [surafel](https://t.me/surafel_a8)
 - Instagram: [surafel](https://instagram.com/surafel_a8)
 
-Thank you for visiting [Trillo - Project]! I hope you enjoy your experience.
+Thank you for visiting [Guessing Game - Project]! I hope you enjoy your experience.
 
 ---
 
